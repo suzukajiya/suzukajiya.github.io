@@ -1,0 +1,1 @@
+# suzukajiya.github.io
